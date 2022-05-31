@@ -1,4 +1,4 @@
-![Astronomia - UFRJ](https://i.im.ge/2022/06/01/r81mH9.png) 
+![Astronomia - UFRJ](https://i.ibb.co/1d86sQj/Untitled-4.jpg) 
 ## Apresentando meus projetos
 
  Todos os exercícios e projetos feitos durante minha graduação, na UFRJ:
